@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @bigted44
+- 👀 I’m interested in Big stuff
+- 🌱 I’m currently learning Big stuff
+- 💞️ I’m looking to collaborate on Big stuff
+- 📫 How to reach me: BigEmail@Big.Ted.BigTed.Ted.Com.Ted.Big.Biz.Cf
